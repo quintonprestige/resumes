@@ -23,19 +23,18 @@ _Fellowship_ | March 2013 - March 2014
 ### Phi Kappa Tau Alumni Club - Washington, D.C.
 _President_ | March 2013 - March 2014
 
-### University of Maryland University College | Upper Marlboro, MD
+### University of Maryland University College - Upper Marlboro, MD
 _M.B.A_ | September 2018 - Present
 
-### University of Maryland University College | Upper Marlboro, MD
+### University of Maryland University College - Upper Marlboro, MD
 _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
 
-### University of Evansville | Evansville, IN
+### University of Evansville - Evansville, IN
 _B.A. in International Studies_ | September 2008 - December 2012
 
-##### MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
+###### MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
 
-##### Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
-Fun Children's Network}; 
+###### Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious Fun Children's Network}; 
 
 
 
