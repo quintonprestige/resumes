@@ -34,6 +34,7 @@ _B.A. in International Studies_ | September 2008 - December 2012
 
 ****
 MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
+
 Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
 Fun Children's Network}; 
 
