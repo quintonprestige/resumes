@@ -30,7 +30,7 @@ _M.B.A Studies_ | September 2018 - Present
 _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
 
 ### University of Evansville | Evansville, IN
-_B.A. in International Studies | September 2008 - December 2012
+_B.A. in International Studies_ | September 2008 - December 2012
 ---
 MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
 
