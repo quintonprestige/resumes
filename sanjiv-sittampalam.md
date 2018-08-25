@@ -17,7 +17,7 @@ _Claims Reviewer II_ | March 2014 - April 2017
 _Fellowship_ | March 2013 - March 2014
 * Faciliated meetings with congressional staffers to educate congresspersons on NDSS mission
 * Organized fundraisers to collect donations for the foundation
-* Led Researched Policy Video Production Project - with the end product being a (video)[link here]
+* Served as lead for  The Researched Policy Video Production Project 
 
 #### Phi Kappa Tau Alumni Club - Washington, D.C.
 _President_ | March 2013 - March 2014
