@@ -24,7 +24,7 @@ _Fellowship_ | March 2013 - March 2014
 _President_ | March 2013 - March 2014
 
 ### University of Maryland University College | Upper Marlboro, MD
-_M.B.A Studies_ | September 2018 - Present
+_M.B.A_ | September 2018 - Present
 
 ### University of Maryland University College | Upper Marlboro, MD
 _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
@@ -33,8 +33,8 @@ _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
 _B.A. in International Studies_ | September 2008 - December 2012
 
 ****
-* MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
-* Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
+MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
+Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
 Fun Children's Network}; 
 
 
