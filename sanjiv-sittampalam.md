@@ -23,7 +23,7 @@ _Fellowship_ | March 2013 - March 2014
 _President_ | March 2013 - March 2014
 
 #### University of Maryland University College - Upper Marlboro, MD
-_M.S. in Cybersecurity Policy & M.B.A_ | September 2016 - Present
+_M.S. in Cybersecurity Policy & M.B.A._ | September 2016 - Present
 
 #### University of Evansville - Evansville, IN
 _B.A. in International Studies_ | September 2008 - December 2012
