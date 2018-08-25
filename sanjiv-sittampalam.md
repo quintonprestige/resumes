@@ -1,7 +1,7 @@
 ## Sanjiv Sittampalam
 U.S. Citizen | bashaa@sbcglobal.net | 317 509 0228
 
-### JP Morgan Chase Bank & Co. | Indianapolis, Indiana
+### JP Morgan Chase Bank & Co. | Indianapolis, IN 
 _Senior Document Review Specialist_ | July 2017 - Present
 * Awarded **Document Team Top Dog** for highest performance metrics with minimal errors
 * Generated new methodologies that increased accuracy on time-based billing by 15%
@@ -31,10 +31,10 @@ _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
 
 ### University of Evansville | Evansville, IN
 _B.A. in International Studies_ | September 2008 - December 2012
----
-MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
 
-Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
+****
+* MS {Word, Excel, Powerpoint, Outlook, Sharepoint}, English; Russian (intermediate); German (basic);
+* Volunteer @ {Habitat for Humanity, Keep Evansville Beautiful, Evansville Wetland, Red Cross, Serious
 Fun Children's Network}; 
 
 
