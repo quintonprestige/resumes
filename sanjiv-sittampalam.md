@@ -8,7 +8,7 @@ _Senior Document Review Specialist_ | July 2017 - Present
 * Ensured high-profile subpoenas were compliant with federal and state regulations 
 
 #### Brown & Greer, PLC - Richmond, VA
-_Claims Reviewer II_ | March 2015 - April 2017
+_Claims Reviewer II_ | March 2014 - April 2017
 * Served as lead for five employees on the Claimant Accounting Services Team
 * Developed new processes that increased reviewer efficiency by 12%
 * Collaborated with Database Management Team to troubleshoot data discrepancies
