@@ -3,7 +3,7 @@ U.S. Citizen | bashaa@sbcglobal.net | 317 509 0228 | 11201 Governors Lane Fisher
 
 #### JP Morgan Chase Bank & Co. | Indianapolis, IN 
 _Senior Document Review Specialist_ | July 2017 - Present
-* Awarded **Document Team Top Dog** for highest performance metrics with minimal errors
+* Awarded **Document Team Top Dog** for highest performance metrics
 * Generated new methodologies that increased accuracy on time-based billing by 15%
 * Ensured high-profile subpoenas were compliant with federal and state regulations 
 
