@@ -1,4 +1,4 @@
-## Sanjiv Sittampalam
+# Sanjiv Sittampalam
 U.S. Citizen | bashaa@sbcglobal.net | 317 509 0228 | 11201 Governors Lane Fishers, IN 46307
 
 #### JP Morgan Chase Bank & Co. | Indianapolis, IN 
@@ -24,10 +24,7 @@ _Fellowship_ | March 2013 - March 2014
 _President_ | March 2013 - March 2014
 
 #### University of Maryland University College - Upper Marlboro, MD
-_M.B.A._ | September 2018 - Present
-
-#### University of Maryland University College - Upper Marlboro, MD
-_M.S. in Cybersecurity Policy_ | September 2016 - August 2018
+_M.S. in Cybersecurity Policy & M.B.A_ | September 2016 - August 2018
 
 #### University of Evansville - Evansville, IN
 _B.A. in International Studies_ | September 2008 - December 2012
