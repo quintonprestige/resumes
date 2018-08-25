@@ -24,7 +24,7 @@ _Fellowship_ | March 2013 - March 2014
 _President_ | March 2013 - March 2014
 
 ### University of Maryland University College - Upper Marlboro, MD
-_M.B.A_ | September 2018 - Present
+_M.B.A._ | September 2018 - Present
 
 ### University of Maryland University College - Upper Marlboro, MD
 _M.S. in Cybersecurity Policy_ | September 2016 - August 2018
