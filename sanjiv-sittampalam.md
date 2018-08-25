@@ -15,7 +15,7 @@ _Claims Reviewer II_ | March 2014 - April 2017
 
 #### National Down Syndrome Society - Washington, D.C.
 _Fellowship_ | March 2013 - March 2014
-* Faciliated meetings with congressional staffers to educate congresspersons on NDSS mission
+* Faciliated meetings with congresspersons to evangelize NDSS mission
 * Organized fundraisers to collect donations for the foundation
 * Served as lead for  The Researched Policy Video Production Project 
 
