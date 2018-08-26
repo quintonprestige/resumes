@@ -1,7 +1,7 @@
 # Sanjiv Sittampalam
 U.S. Citizen | bashaa@sbcglobal.net | 317 509 0228 | 11201 Governors Lane Fishers, IN 46307
 
-#### JP Morgan Chase Bank & Co. | Indianapolis, IN 
+#### JP Morgan Chase Bank & Co. - Indianapolis, IN 
 _Senior Document Review Specialist_ | July 2017 - Present
 * Awarded **Document Team Top Dog** for highest performance metrics
 * Generated new methodologies that increased accuracy on time-based billing by 15%
